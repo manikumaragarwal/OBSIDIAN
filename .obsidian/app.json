@@ -1,0 +1,19 @@
+{
+  "showLineNumber": false,
+  "readableLineLength": true,
+  "vimMode": true,
+  "alwaysUpdateLinks": true,
+  "pdfExportSettings": {
+    "includeName": true,
+    "pageSize": "A4",
+    "landscape": false,
+    "margin": "0",
+    "downscalePercent": 61
+  },
+  "newFileLocation": "folder",
+  "newFileFolderPath": "PARA/4. ARCHIVE/0. INBOX",
+  "attachmentFolderPath": "PARA/4. ARCHIVE/Attachments",
+  "showInlineTitle": true,
+  "promptDelete": false,
+  "tabSize": 4
+}

@@ -1,0 +1,29 @@
+# Obsidian Vault .gitignore for Desktop + Android Git Sync
+
+# OS & Editor artifacts
+.DS_Store
+Thumbs.db
+*.tmp
+*.swp
+*.bak
+*~
+
+# Obsidian Workspace and Transient Cache (avoids merge conflicts between mobile and desktop)
+.obsidian/workspace.json
+.obsidian/workspace-mobile.json
+.obsidian/cache/
+.obsidian/graph.json
+.obsidian/*.log
+.obsidian/github-sync-metadata.json
+.obsidian/github-sync.log
+.trash/
+
+# Keep configuration and plugins tracked
+!.obsidian/app.json
+!.obsidian/appearance.json
+!.obsidian/community-plugins.json
+!.obsidian/core-plugins.json
+!.obsidian/hotkeys.json
+!.obsidian/plugins/
+!.obsidian/themes/
+!.obsidian/snippets/
