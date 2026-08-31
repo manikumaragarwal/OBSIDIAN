@@ -83,10 +83,11 @@
 
 - she gave birth to a healthy child "**William**" on jan 24, 1816.
 
-
-
 ---
 
+# Her work :
+
+even before writing Frankenstein, she have tried to tackle that issue in some her previous works: *"Tranformation" (1831)* , *"The Mortal Immortal" (1834)* and *"The Mourner" (1830)*
 
 
 
