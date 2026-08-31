@@ -87,8 +87,13 @@
 
 # Her work :
 
-even before writing Frankenstein, she have tried to tackle that issue in some her previous works: *"Tranformation" (1831)* , *"The Mortal Immortal" (1834)* and *"The Mourner" (1830)*
+even before writing Frankenstein, she have tried to tackle that issue in some her previous works: 
+- *"Tranformation" (1831)* 
+- *"The Mortal Immortal" (1834)*  
+- *"The Mourner" (1830)* 
 
+
+Mary Shelley was interested in the 'Role of the family and'
 
 
 
