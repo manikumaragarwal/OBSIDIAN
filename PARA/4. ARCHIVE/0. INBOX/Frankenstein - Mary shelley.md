@@ -4,10 +4,11 @@ aliases: []
 tags: []
 ---
 
-[[1787506426-NNEH]] Frankenstein -- CRASH COURSE
+[[FRANKENSTEIN - CRASH COURSE]] Frankenstein -- CRASH COURSE
 
 # About the Author
 [[Mary Shelley]]
+# Introduction
 
 
 

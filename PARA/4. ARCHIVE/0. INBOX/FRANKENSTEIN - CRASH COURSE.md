@@ -4,18 +4,14 @@ aliases:
   - Frankenstein - CRASH COURSE
 tags: []
 ---
-
-# Frankenstein - CRASH COURSE
-
 ### HISTORY OF book!
 
 MOVIES
 
 1. Carlos picture
 2. Blackenstein
-3. The Erotic Rites of FRANKENSTEIN
-
-- [ ] 4. frankenstein meets the space monster
+3. [ ] The Erotic Rites of FRANKENSTEIN
+4. [ ] frankenstein meets the space monster
 
 ---
 
@@ -25,7 +21,7 @@ MOVIES
 
 - Greatest Romantic Novel(novel during romantic era) -- modern emotions like awe, horror, terror can be the center of an aesthetic experience
 
-## BIOGRAPHy f marry shelley
+## BIOGRAPHy Mary Shelley
 
 - father : anarchist writer
 - mother(mary wollstonecraft) : famous feminist of her time
