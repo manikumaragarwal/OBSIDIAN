@@ -93,7 +93,15 @@ even before writing Frankenstein, she have tried to tackle that issue in some he
 - *"The Mourner" (1830)* 
 
 
-Mary Shelley was interested in the 'Role of the family and'
+Mary Shelley was interested in the 'Role of the family and domenstic affections' and what happens if man alienates himself from such positive influences.
+These works by her have dealt with this idea:  
+1. "*Frankenstein*"
+2. *The Last Man (1826)*"
+3. "*Perkin Warbeck (1830)*"
+4. 
+
+
+
 
 
 
