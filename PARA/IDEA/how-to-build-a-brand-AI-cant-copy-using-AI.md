@@ -16,4 +16,10 @@ TAGS : [[PERSONAL-BRANDING]] [[AI]] [[psychology]]
 
 # 2. Idea DNA
 - keep the idea to execution window as short as possible... to get the emotions that you're feeling to the screen.
-- waiting too long at the "idea" phase wi
+- waiting too long at the "idea" phase will rip the excited-ness out of that idea. 
+ 
+ - **Weekly InSIGHTS**
+ 
+
+
+
