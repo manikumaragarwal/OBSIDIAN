@@ -19,7 +19,8 @@ TAGS : [[PERSONAL-BRANDING]] [[AI]] [[psychology]]
 - waiting too long at the "idea" phase will rip the excited-ness out of that idea. 
  
  - **Weekly InSIGHTS**
-	 - a layer of your own insights and ideas that the AI knows about you... add data-points everyday... add
+	 - a layer of your own insights and ideas that the AI knows about you... add data-points everyday... add your own notes, your own beliefs, (basically creator-skill-files for yourself).
+	 
 
 
 
