@@ -7,4 +7,5 @@ TAGS : [[PERSONAL-BRANDING]] [[AI]] [[psychology]]
 
 
 # 1. Aesthetic DNA
--  
+- CURATE your FEED on pinterest
+	- get ide
