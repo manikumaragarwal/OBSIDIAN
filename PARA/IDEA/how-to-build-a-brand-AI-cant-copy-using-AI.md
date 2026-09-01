@@ -13,3 +13,5 @@ TAGS : [[PERSONAL-BRANDING]] [[AI]] [[psychology]]
 	- get **motion graphics** inspiration
 	- get **Carousel**  inspirations (look at old Porsche ads, other big brand's ads.)
 	- 
+
+# 2. IDE
