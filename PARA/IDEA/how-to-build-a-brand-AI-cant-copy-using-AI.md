@@ -14,4 +14,6 @@ TAGS : [[PERSONAL-BRANDING]] [[AI]] [[psychology]]
 	- get **Carousel**  inspirations (look at old Porsche ads, other big brand's ads.)
 	- 
 
-# 2. IDE
+# 2. Idea DNA
+- keep the idea to execution window as short as possible... to get the emotions that you're feeling to the screen.
+- waiting too long at the "idea" phase wi
