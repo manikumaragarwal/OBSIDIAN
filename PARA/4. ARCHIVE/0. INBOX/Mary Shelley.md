@@ -83,34 +83,6 @@
 
 - she gave birth to a healthy child "**William**" on jan 24, 1816.
 
----
-
-# Her work :
-
-even before writing Frankenstein, she have tried to tackle that issue in some her previous works: 
-- *"Tranformation" (1831)* 
-- *"The Mortal Immortal" (1834)*  
-- *"The Mourner" (1830)* 
-
-
-Mary Shelley was interested in the 'Role of the family and domenstic affections' and what happens if man alienates himself from such positive influences.
-These works by her have dealt with this idea:  
-1. *The Last Man (1826)*"
-2. "*Perkin Warbeck (1830)*"
-
-
-
-
-
-
-
-
-
-
-
-
-
-3. 
 
 
 
