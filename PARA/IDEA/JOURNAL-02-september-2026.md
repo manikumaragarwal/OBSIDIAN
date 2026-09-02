@@ -4,6 +4,8 @@ aliases: []
 tags: []
 ---
 
+Tags [[Personal]] [[Diary]]
+
 I recently realized that... nobody is special, me, you we all are the same, something you think is unachievable is not TRUE, I always belived making money, getting an internship is suoer hard... it's not, you just have to put yoruself out there, ask people and they'll actually try to help you...
 
 I was in an interview few days back...and I was pretty scared about it... but then i saw a reel which talked about how everyone wants you to do good.. an interviewer wants to hire you, because they need someone for hte job, and they don't want to interview lot of people... we believe that people want us to fail, but htat's not true ... not true at all! people want you to be sucessfull, they want you to be funny, they want the joke youre building up to land correctly and be funny.
