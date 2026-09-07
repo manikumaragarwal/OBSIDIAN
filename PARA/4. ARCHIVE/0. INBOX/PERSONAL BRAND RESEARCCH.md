@@ -9,3 +9,9 @@ Tags: [[PERSONAL-BRANDING]]
 
 2. master one platform first
 	- 
+	o
+
+
+
+### new ideas: 
+- most people either say to have a niche, or 
