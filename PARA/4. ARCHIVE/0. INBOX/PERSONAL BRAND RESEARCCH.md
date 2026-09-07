@@ -14,4 +14,6 @@ Tags: [[PERSONAL-BRANDING]]
 
 
 ### new ideas: 
-- most people either say to have a niche, or 
+- most people either say to have a "strict niche", or "you're the niche"
+	- you should do "**Interest Stacking**" : 80% core niche, 20% personal interests.
+	- more human... 
