@@ -4,6 +4,10 @@ aliases: []
 tags: []
 ---
 
+Tags: [[]]
+
+---
+
 titles :
 
 1. the science/pscyhology of building a personal brand everyone loves.
