@@ -12,7 +12,7 @@ titles :
 
 1. the science/pscyhology of building a personal brand everyone loves.
 2. the (science/psychology/art) of personal branding everyone loves.
-3. **the science of building a persaonal brand that actually makes money in 2027**.
+3. **the science of building a personal brand that actually makes money in 2027**.
 
 thumbnails:
 ![1788847145.png](assets/imgs/1788847145.png)G
