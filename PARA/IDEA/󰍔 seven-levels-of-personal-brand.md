@@ -14,6 +14,9 @@ titles :
 2. the (science/psychology/art) of personal branding everyone loves.
 3. **the levels of building a personal brand that actually makes money in 2027**.
 
+
+**cult like personal brand **
+
 thumbnails:
 ![1788847145.png](assets/imgs/1788847145.png)G
 ![1788847246.png](assets/imgs/1788847246.png)
