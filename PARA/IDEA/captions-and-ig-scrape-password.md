@@ -13,3 +13,7 @@ PSHG7QnoPJp
 
 manish
 Cap-U48PMYAJ6IdM
+
+# token for the /ig-scrape api:
+
+sk_60050c19c86c44b7499720229645b311bee8d9a1b1743546
