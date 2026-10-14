@@ -1,7 +1,7 @@
 youtube just updated the playbook 
 and clippping is dead
 
-this
+buy this could be the biggest blessing for clippers who play this game correctly
 
 
 
