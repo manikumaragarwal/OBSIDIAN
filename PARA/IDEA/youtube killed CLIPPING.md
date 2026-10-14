@@ -3,7 +3,9 @@ because youtube just updated their playbook
 
 Here's exactly what happened..
 
-Youtube 
+Youtube is now going to be decreasing the reach on reposted/repurposed content
+
+and now the $3 Billion CLIPPING INDUSTRY is in dangers.
 
 but this could be the biggest blessing for you
 depending on which boat you are currently
