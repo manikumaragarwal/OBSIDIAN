@@ -31,10 +31,25 @@ now, if you belong to the FIRST boat
 congratulations..
 YOUTUBE just gave you a golden pass
 
-if any COPYCAT steal your 
+if any COPYCAT steal your clips
+and repost them with just minor changes
+they won't get the same distribution that you will get.
 
 
 
+so no,  clipping is not dead 
+if you are a CREATIVE, 
+if you add actuall
+
+
+
+
+
+
+
+
+
+---
 now, if those above words made you tense a little, then, 
 
 I'm guessing you do one of these things: 
