@@ -27,8 +27,8 @@ Clipper's are of two types :
 	and they call it a day.
 
 
-now, if you belong to the FIRST boat,  congratulations.. 
-
+now, if you belong to the FIRST boat	congratulations..
+YOUTUBE just served you a  on a golden platter.
 
 
 now, if those above words made you tense a little, then, 
