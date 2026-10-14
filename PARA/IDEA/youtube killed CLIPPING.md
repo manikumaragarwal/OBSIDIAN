@@ -1,4 +1,4 @@
-youtube banned
+youtube killed clipping..
 
 now, if those above words made you tense a little, then, 
 
