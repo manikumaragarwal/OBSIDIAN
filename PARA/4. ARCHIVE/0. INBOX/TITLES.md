@@ -1,5 +1,10 @@
-Claude Code Build This Game in 10 minutes (free to play)
+### SURESH AI 
+
+Claude Code Build This MAHABHARATA Game in (10 minutes)
+
+### SURESH DAILY
+
+HOLY SHIT.. Claude build a MAHABHARATA x MINECRAFT game
 
 
-*HOLY SH*T.. Claude 
 
