@@ -45,7 +45,6 @@ you focus on storytelling
 you put real efforts into every clip
 
 
-these new rules are going to make
 
 
 
