@@ -1,5 +1,9 @@
-ishowspeed, mr. Beast and Rashamani's ca
-youtube just updated the playbook 
+ishowspeed, mr. Beast and Raj Shamani's career is in danger 
+because youtube just updated their playbook 
+
+Here's exactly what happened..
+
+Youtube 
 
 but this could be the biggest blessing for you
 depending on which boat you are currently
