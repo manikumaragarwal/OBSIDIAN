@@ -39,7 +39,8 @@ they won't get the same distribution that you will get.
 
 so no,  clipping is not dead 
 if you are a CREATIVE, 
-if you add a unique take
+you add a unique take
+you focus on storytelling
 
 
 
