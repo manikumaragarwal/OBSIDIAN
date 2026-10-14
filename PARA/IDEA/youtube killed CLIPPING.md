@@ -37,9 +37,10 @@ they won't get the same distribution that you will get.
 
 
 
-so no,  clipping is not dead 
+so no,  Youtube didn't kill clipping is not dead 
 
-if you are a CREATIVE, 
+
+if you are a CREATIVE
 you add a unique take
 you focus on storytelling
 you put real efforts into every clip
