@@ -1,4 +1,4 @@
-Claude Code Build This Game in 10 Minutes 
+Claude Code Build This Game (free to play)
 
 
 
