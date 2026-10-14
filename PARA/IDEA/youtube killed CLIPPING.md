@@ -29,8 +29,9 @@ Clipper's are of two types :
 
 now, if you belong to the FIRST boat	
 congratulations..
-YOUTUBE just gave you a golden egg laying chicken.
+YOUTUBE just gave you a golden pass
 
+if any COPYCAT steal your 
 
 
 
