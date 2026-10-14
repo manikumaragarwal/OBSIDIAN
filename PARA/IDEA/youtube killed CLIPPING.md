@@ -1,4 +1,4 @@
-youtube's CEO recently warned clippers that they're not going to push repurposed/reposted content on their platform.
+youtube banned
 
 now, if those above words made you tense a little, then, 
 
