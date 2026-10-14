@@ -1,7 +1,19 @@
 youtube just updated the playbook 
 and clippping is dead
 
-buy this could be the biggest blessing for clippers who play this game correctly
+but this could be the biggest blessing for clippers who play this game correctly
+
+Clipper's can be generally categorized into two types : 
+
+1. The creatives
+
+	these are the people who
+	have the craziest edits
+	understand content better than anyone else(especially short form content)
+
+
+
+
 
 
 
