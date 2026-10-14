@@ -24,7 +24,7 @@ Clipper's are of two types :
 	change the tint
 	add a zoom-in
 
-	and they call it a day.
+	and they call it a day
 
 
 now, if you belong to the FIRST boat	
@@ -39,7 +39,8 @@ they won't get the same distribution that you will get.
 
 so no,  clipping is not dead 
 if you are a CREATIVE, 
-if you add actuall
+if you add a unique take
+
 
 
 
