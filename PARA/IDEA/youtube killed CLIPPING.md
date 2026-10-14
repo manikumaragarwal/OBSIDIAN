@@ -1,9 +1,10 @@
 youtube just updated the playbook 
 and clippping is dead
 
-but this could be the biggest blessing for clippers who play this game correctly
+but this could be the biggest blessing for you
+depending on which boat you are currently
 
-Clipper's can be generally categorized into two types : 
+Clipper's are of two types : 
 
 1. The CREATIVES
 
@@ -18,11 +19,15 @@ Clipper's can be generally categorized into two types :
 	they are the free-loaders
 	who leeches off "The CREATIVES"
 
-	they download original edits,
+	they download viral clips from someone else,
 	change the text hook
-	change the 
+	change the tint
+	add a zoom-in
+
+	and they call it a day.
 
 
+now, if you belong to the FIRST boat,  congratulations.. 
 
 
 
