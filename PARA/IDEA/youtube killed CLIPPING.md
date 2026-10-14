@@ -5,13 +5,22 @@ but this could be the biggest blessing for clippers who play this game correctly
 
 Clipper's can be generally categorized into two types : 
 
-1. The creatives
+1. The CREATIVES
 
-	these are the people who
-	have the craziest edits
-	understand content better than anyone else(especially short form content)
+	these are the people who have
+	
+	the craziest edits
+	understand content better than anyone else
+	(especially short form content)
 
+2. The COPYCATS
 
+	they are the free-loaders
+	who leeches off "The CREATIVES"
+
+	they download original edits,
+	change the text hook
+	change the 
 
 
 
