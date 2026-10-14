@@ -1,7 +1,7 @@
 youtube just updated the playbook 
 and clippping is dead
 
-this is the bi
+this
 
 
 
