@@ -10,7 +10,7 @@ and now the $3 Billion CLIPPING INDUSTRY is in dangers.
 but this could be the biggest blessing for you
 depending on which boat you are currently
 
-Clipper's are of two types : 
+Clipping is of two types : 
 
 1. The CREATIVES
 
@@ -19,6 +19,7 @@ Clipper's are of two types :
 	the craziest edits
 	understand content better than anyone else
 	(especially short form content)
+	add a unique take on the original content 
 
 2. The COPYCATS
 
@@ -34,6 +35,7 @@ Clipper's are of two types :
 
 
 now, if you belong to the FIRST boat	
+
 congratulations..
 YOUTUBE just gave you a golden pass
 
