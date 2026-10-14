@@ -38,10 +38,14 @@ they won't get the same distribution that you will get.
 
 
 so no,  clipping is not dead 
+
 if you are a CREATIVE, 
 you add a unique take
 you focus on storytelling
+you put real efforts into every clip
 
+
+these new rules are going to make
 
 
 
