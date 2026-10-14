@@ -38,13 +38,11 @@ they won't get the same distribution that you will get.
 
 
 so no, Youtube didn't kill clipping
-
-
-if you are a CREATIVE
+It made sure that you get distribution
+if you are CREATIVE
 you add a unique take
 you focus on storytelling
 you put real efforts into every clip
-
 
 
 
