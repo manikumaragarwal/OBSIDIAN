@@ -1,5 +1,5 @@
+ishowspeed, mr. Beast and Rashamani's ca
 youtube just updated the playbook 
-and clippping is dead
 
 but this could be the biggest blessing for you
 depending on which boat you are currently
