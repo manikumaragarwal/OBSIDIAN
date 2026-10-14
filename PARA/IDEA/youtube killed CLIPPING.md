@@ -1,5 +1,5 @@
-youtube killed clipping...
-might be the biggest li
+youtube just updated the playbook 
+and clippping 
 
 now, if those above words made you tense a little, then, 
 
