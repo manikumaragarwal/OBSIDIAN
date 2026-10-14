@@ -1,5 +1,9 @@
 youtube just updated the playbook 
-and clippping 
+and clippping is dead
+
+this is the bi
+
+
 
 now, if those above words made you tense a little, then, 
 
