@@ -53,7 +53,6 @@ you put real efforts into every clip
 
 
 
-
 ---
 now, if those above words made you tense a little, then, 
 
