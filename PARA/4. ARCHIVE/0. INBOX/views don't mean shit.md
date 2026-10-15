@@ -3,7 +3,7 @@ until you change this one thing about your content!
 
 but before I tell you what exactly it is..
 
-you have to ask yourself one honest question
+first you have to ask yourself one honest question
 
 why do you want to make content in the first place ? 
 
