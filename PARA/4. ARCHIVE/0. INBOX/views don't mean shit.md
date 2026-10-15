@@ -11,7 +11,7 @@ do you want to make money?
 
 maybe you want to become popular? 
 
-or maybe you want both of those
+or maybe you want both
 
 content 
 
