@@ -21,6 +21,14 @@ content will give you that,
 
 but the problem arises when,
 you start thinking that the only way to way to get that from content 
+is by chasing views.. 
+
+
+views is just a Vanity Metric.. 
+
+a thousand eyeballs means nothing if they don't have any value to give you.
+
+
 
 
 
