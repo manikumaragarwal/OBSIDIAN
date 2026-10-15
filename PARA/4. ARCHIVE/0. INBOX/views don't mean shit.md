@@ -1,3 +1,7 @@
+idea : views don't mean shit, your positioning matters
+
+
+
 - [ ] views don't mean shit!
   until you change this one thing about your content!
 
@@ -13,7 +17,7 @@ maybe you want to become popular?
 
 or maybe you want both
 
-content 
+content is a genie whi
 
 
 
