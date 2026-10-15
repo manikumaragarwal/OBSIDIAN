@@ -1,2 +1,3 @@
 views don't mean shit!
-untill you change this one thing about content
+until you change this one thing about your content!
+
