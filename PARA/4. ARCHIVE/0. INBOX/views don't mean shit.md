@@ -7,9 +7,9 @@ you have to ask yourself one honest question
 
 why do you want to make content in the first place ? 
 
-to make mon
+to make money? 
 to become popular? 
-
+to 
 
 
 
