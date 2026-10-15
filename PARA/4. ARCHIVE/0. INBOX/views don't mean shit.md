@@ -7,10 +7,11 @@ first you have to ask yourself one honest question
 
 why do you want to make content in the first place ? 
 
-to make money? 
-to become popular? 
-to 
+do you want to make money? 
 
+maybe you want to become popular? 
+
+or maybe you want to 
 
 
 
