@@ -1,8 +1,5 @@
-- [ ] you got 2 million views on your content
-  but still made zero penny from it
-
--[ ] views don't mean shit!
-until you change this one thing about your content!
+- [ ] views don't mean shit!
+  until you change this one thing about your content!
 
 but before I tell you what exactly it is..
 
@@ -14,7 +11,9 @@ do you want to make money?
 
 maybe you want to become popular? 
 
-or maybe you want to 
+or maybe you want both of those
+
+
 
 
 
