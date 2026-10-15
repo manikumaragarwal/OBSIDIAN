@@ -17,7 +17,10 @@ maybe you want to become popular?
 
 or maybe you want both
 
-content is a genie whi
+content will give you that, 
+
+but the problem arises when,
+you start thinking that the only way to way to get that from content 
 
 
 
