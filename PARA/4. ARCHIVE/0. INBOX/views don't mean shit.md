@@ -34,9 +34,17 @@ okay, wo what do we do now?
 
 you adress the person who you want to see your content, 
 
-you make your content around him
+you optimize your content around him
+
 you talk to him directly.
 
+and this is called "POSITIONING"
+
+so the next time you get 2 million views on a post, 
+
+don't start celebrating,yet
+
+first check what kind of people did you content reach.
 
 
 
