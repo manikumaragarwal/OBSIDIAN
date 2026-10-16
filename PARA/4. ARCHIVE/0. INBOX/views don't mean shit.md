@@ -26,14 +26,13 @@ so no matter how many views you get from those people,
 
 it won't benefit you in any way, except make you feel good about yourself
 
+okay, so what do we do now?
 
-okay, wo what do we do now?
+you make content for the person who you want to see your content, 
 
-you adress the person who you want to see your content, 
+you optimise your content around him
 
-you optimize your content around him
-
-you talk to him directly.
+you talk to HIM directly.
 
 and this is called "POSITIONING"
 
