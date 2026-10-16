@@ -1,9 +1,9 @@
-idea : views don't mean shit, your positioning matters
+- positioning: for founders
+- idea : views don't mean shit, your positioning matters
+---
+views don't mean shit!
 
-
-
-- [ ] views don't mean shit!
-  until you change this one thing about your content!
+until you change this one thing about your content!
 
 but before I tell you what exactly it is..
 
@@ -15,18 +15,38 @@ do you want to make money?
 
 maybe you want to become popular? 
 
-or maybe you want both
+you can get all of that through content creation
 
-content will give you that, 
+but first you have to realize that views is just a Vanity metric
 
-but the problem arises when,
-you start thinking that the only way to way to get that from content 
-is by chasing views.. 
+millions of eyeballs don't mean shit unless
+
+the person those eyeballs are attached to have something to give you
+
+a poor person won't buy what you're selling, 
+
+so no matter how many views you get from those people, 
+
+it won't benefit you in anyway, except make you feel good about yourself
 
 
-views is just a Vanity Metric.. 
+okay, wo what do we do now?
 
-a thousand eyeballs means nothing if they don't have any value to give you.
+you adress the person who you want to see your content, 
+
+you optimize your content around him
+
+you talk to him directly.
+
+and this is called "POSITIONING"
+
+so the next time you get 2 million views on a post, 
+
+don't start celebrating,yet
+
+first check what kind of people did you content reach.
+
+
 
 
 
