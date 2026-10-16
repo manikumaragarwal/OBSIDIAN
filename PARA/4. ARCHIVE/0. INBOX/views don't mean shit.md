@@ -1,3 +1,7 @@
+idea : views don't mean shit, your positioning matters
+
+
+
 - [ ] views don't mean shit!
   until you change this one thing about your content!
 
@@ -11,7 +15,18 @@ do you want to make money?
 
 maybe you want to become popular? 
 
-or maybe you want both of those
+or maybe you want both
+
+content will give you that, 
+
+but the problem arises when,
+you start thinking that the only way to way to get that from content 
+is by chasing views.. 
+
+
+views is just a Vanity Metric.. 
+
+a thousand eyeballs means nothing if they don't have any value to give you.
 
 
 
