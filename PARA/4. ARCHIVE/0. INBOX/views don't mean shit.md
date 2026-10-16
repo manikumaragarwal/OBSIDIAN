@@ -2,7 +2,6 @@
 - idea : views don't mean shit, your positioning matters
 ---
 views don't mean shit!
-
 until you change this one thing about your content!
 
 but before I tell you what exactly it is..
@@ -10,24 +9,22 @@ but before I tell you what exactly it is..
 first you have to ask yourself one honest question
 
 why do you want to make content in the first place ? 
-
 do you want to make money? 
-
 maybe you want to become popular? 
 
-you can get all of that through content creation
+the truth is.. you CAN get all of that through content creation
 
 but first you have to realize that views is just a Vanity metric
 
-millions of eyeballs don't mean shit unless
+millions of eyeballs don't mean shit, unless
 
-the person those eyeballs are attached to have something to give you
+the person those eyeballs are attached to, have some value to give you
 
 a poor person won't buy what you're selling, 
 
 so no matter how many views you get from those people, 
 
-it won't benefit you in anyway, except make you feel good about yourself
+it won't benefit you in any way, except make you feel good about yourself
 
 
 okay, wo what do we do now?
