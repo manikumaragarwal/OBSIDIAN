@@ -42,6 +42,12 @@ don't start celebrating, yet
 
 first check what kind of people did you content reach.
 
+if you're viewers match your icp, then only is your viral video  actually a good news for you 
+
+---
+
+
+
 
 
 
