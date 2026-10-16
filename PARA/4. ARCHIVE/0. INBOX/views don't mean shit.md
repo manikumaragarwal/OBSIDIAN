@@ -32,6 +32,12 @@ it won't benefit you in anyway, except make you feel good about yourself
 
 okay, wo what do we do now?
 
+you adress the person who you want to see your content, 
+
+you make your content around him
+you talk to him directly.
+
+
 
 
 
