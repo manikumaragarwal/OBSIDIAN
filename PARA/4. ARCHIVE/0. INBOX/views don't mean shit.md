@@ -25,7 +25,14 @@ the person those eyeballs are attached to have something to give you
 
 a poor person won't buy what you're selling, 
 
-so no matter how many views you get from those e
+so no matter how many views you get from those people, 
+
+it won't benefit you in anyway, except make you feel good about yourself
+
+
+okay, wo what do we do now?
+
+
 
 
 
