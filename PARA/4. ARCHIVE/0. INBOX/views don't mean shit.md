@@ -15,7 +15,17 @@ do you want to make money?
 
 maybe you want to become popular? 
 
+you can get all of that through content creation
 
+but first you have to realize that views is just a Vanity metric
+
+millions of eyeballs don't mean shit unless
+
+the person those eyeballs are attached to have something to give you
+
+a poor person won't buy what you're selling, 
+
+so no matter how many views you get from those e
 
 
 
