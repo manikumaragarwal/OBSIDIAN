@@ -38,7 +38,7 @@ and this is called "POSITIONING"
 
 so the next time you get 2 million views on a post, 
 
-don't start celebrating,yet
+don't start celebrating, yet
 
 first check what kind of people did you content reach.
 
