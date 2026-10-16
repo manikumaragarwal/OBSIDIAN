@@ -1,3 +1,6 @@
+- positioning: for founders
+- idea : views don't mean shit, your positioning matters
+---
 views don't mean shit!
 
 until you change this one thing about your content!
@@ -12,7 +15,7 @@ do you want to make money?
 
 maybe you want to become popular? 
 
-or maybe you want both of those
+
 
 
 
