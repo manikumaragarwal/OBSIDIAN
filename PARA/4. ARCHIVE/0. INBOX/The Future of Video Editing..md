@@ -23,7 +23,6 @@ has been changed..
 
 85-95% of the videos that our agency produce are automated 100% with AI... 
 
-when the 
+when the deliverables because soo easy to produce... what hold value is the ability to take accountability... ability to take the gurantee that you'll give then results and not only the output product...  
 
-
-
+if you read it this far, here's a small gift from my side : [youtube-link] which have my long video on Ai automating editing, and how I build my workflows
