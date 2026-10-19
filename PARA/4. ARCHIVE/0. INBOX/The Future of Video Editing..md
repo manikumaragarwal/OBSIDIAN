@@ -21,6 +21,6 @@ the metric which we used to see how productive someone is...
 has been changed..
 
 
-
+85-95% of the videos that our agency we produce are automated
 
 
