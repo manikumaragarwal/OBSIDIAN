@@ -30,33 +30,41 @@ if you read it this far, here's a small gift from my side : [youtube-link] which
 
 ---
 
+**85-95% of the videos our agency makes are now fully automated with AI.**
 
+Yes, really.
 
-I came across hyperframes 6 months back, and since then I've been trying it to automate my video editing, build workflows around it... 
+Here's how we got here.
 
-it was okay, but not upto the quality that we at our agency aspire to achieve..
+7 months ago I found Hyperframes. I started using it to automate my video editing and built workflows around it.
 
-but recently claude released their new 5.5 series of models...  
+It was okay. But it wasn't the quality we want at our agency.
 
-and the output we get in video editing from it is amazing!! 
+Then Claude released the Opus 5.5
 
-there had been an notion around people that video editing jobs are not going to be replaced by AI...
-atleast not in the near future.
+And the videos we get out of them? 
 
-but future is here at our doorsteps.
+Amazing.
 
-I had this meeting in our agency reagarding this today... 
+For a long time, people said video editing jobs won't be replaced by AI. At least not anytime soon.
 
-output doesn't matter anymore... it's all a game of results now...
+Well, the future is at your doorstep.
 
-it's not about who can deliver 3 videos per day... it's about who can deliver video that bring in views.
+We had a meeting about this at our agency today.
+here's the summary
 
-the metric which we used to see how productive someone is...  
-has been changed..
+Output doesn't matter anymore. Results do.
 
+It used to be about who could deliver 3 videos a day. Now it's about who can deliver a video that brings in views.
 
-85-95% of the videos that our agency produce are automated 100% with AI... 
+The way we measure "productive" has changed.
 
-when the deliverables because soo easy to produce... what hold value is the ability to take accountability... ability to take the gurantee that you'll give then results and not only the output product...  
+Think about it. When anyone can make a video in minutes, the video is not the valuable part anymore.
 
-if you read it this far, here's a small gift from my side : [youtube-link] which have my long video on Ai automating editing, and how I build my workflows
+The valuable part is the person who says: "I'll take responsibility. I guarantee you results, not just a file."
+
+That's what clients will pay for.
+
+So here's my question for you: are you getting paid for the output, or for the result?
+
+If you read this far, here's a small gift. My long video on how I use AI to automate editing, and how I build my workflows: [youtube-link]
