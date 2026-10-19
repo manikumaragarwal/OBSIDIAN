@@ -57,14 +57,17 @@ Output doesn't matter anymore. Results do.
 
 It used to be about who could deliver 3 videos a day. Now it's about who can deliver a video that brings in views.
 
-The way we measure "productive" has changed.
+The way we measure "productivity" has changed.
 
-Think about it. When anyone can make a video in minutes, the video is not the valuable part anymore.
+Think about it. 
+
+When anyone can make a video in minutes, the video is not the valuable part anymore.
 
 The valuable part is the person who says: "I'll take responsibility. I guarantee you results, not just a file."
 
 That's what clients will pay for.
 
-So here's my question for you: are you getting paid for the output, or for the result?
+So here's my question for you: 
+are you getting paid for the output, or for the result?
 
 If you read this far, here's a small gift. My long video on how I use AI to automate editing, and how I build my workflows: [youtube-link]
