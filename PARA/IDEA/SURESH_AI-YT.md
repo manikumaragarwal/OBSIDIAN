@@ -18,3 +18,7 @@ tags: []
       ![1792400735.png](assets/imgs/1792400735.png)
 - [ ] How to actually automate your INSTAGRAM w Claude
 
+
+[ ] HOW TO SET YOUR IG BIO
+- Watch This To Generate 1000s of Leads (In Any Niche)
+
