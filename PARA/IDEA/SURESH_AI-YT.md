@@ -22,4 +22,4 @@ tags: []
 [ ] HOW TO SET YOUR IG BIO
 - Watch This To Generate 1000s of Leads (In Any Niche)
 
-![[Pasted image 20261020152805.png]]
+![[Pasted image 20261020152805.png|662]]
