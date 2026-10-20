@@ -16,4 +16,5 @@ tags: []
 
 - [ ] Instagram Makes me money while I do nothing!
       ![1792400735.png](assets/imgs/1792400735.png)
-- [] How to actually automate your INSTAGRAM w Claude
+- [ ] How to actually automate your INSTAGRAM w Claude
+
